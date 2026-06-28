@@ -1,4 +1,4 @@
-# 
+# Top birdeye sniper bot modèles pour Mac OS | Gratuit birdeye sniper bot modèles pour PC Windows. Avec évaluation des risques et estimation des frais de gaz — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
